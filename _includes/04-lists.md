@@ -1,0 +1,3 @@
+- Fond of meeting new people
+- Heling others brings me joy
+- Spends most of my time on GitHub browsing different repositories
